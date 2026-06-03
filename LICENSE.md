@@ -1,4 +1,4 @@
-# 
+# Premium dex market making bot predefinições para Mac OS | Exclusivo dex market making bot predefinições para PC Windows. Com painéis personalizados e visualização de dados — otimizado para máximo desempenho em cada plataforma.
 
 
 
